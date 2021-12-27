@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sandro-pe
+- 👀 I’m interested in math, physics, coding, fitness and football
+- 🌱 I’m currently learning the field of AI
+- 📫 How to reach me petersa72701@th-nuernberg.de
